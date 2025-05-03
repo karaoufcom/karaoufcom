@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on meaningful tech projects—especially those at the intersection of access to justice, storytelling, and automation.
 
-📫 How to reach me: karaouf.com or Telegram (@karaouf) — I usually reply unless I'm deep in code or coffee.
+📫 How to reach me: raufk.com 
 
 ⚡ Fun fact: I’m building my digital life like a Pixar short: a bit quirky, visually smooth, and just emotional enough to keep you watching.
 
